@@ -1,1 +1,1 @@
-Anything
+Anything can be learnt
